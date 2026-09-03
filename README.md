@@ -73,7 +73,7 @@
 
 ### 🎓 Formação
 
-**Análise e Desenvolvimento de Sistemas** — Faculdade Anhanguera (2023–2025, concluído)
+**Análise e Desenvolvimento de Sistemas** — Faculdade Anhanguera (2022–2025, concluído)
 
 ### 🌐 Idiomas
 
